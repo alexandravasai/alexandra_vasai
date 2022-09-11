@@ -1,2 +1,2 @@
-# Proiect_it scool
+# Proiect_it school
 
